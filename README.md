@@ -52,7 +52,6 @@ We may update this Privacy Policy. Any changes will be posted on this page.
 
 ---  
 
-*This document is machine-translated for reference. In case of discrepancies, the original Chinese version shall prevail.*
 
 # CoolPoses相机隐私政策
 
